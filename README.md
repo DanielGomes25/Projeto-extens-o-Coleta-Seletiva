@@ -1,1 +1,1 @@
-# Projeto-extens-o-Coleta-Seletiva
+# Projeto-extensão-Coleta-Seletiva
